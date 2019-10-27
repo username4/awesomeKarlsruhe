@@ -11,6 +11,8 @@ We collected some of our favourite activities to do in and around Karlsruhe - ap
 * Soccer
 * [Uni-Sport](https://www.sport.kit.edu/hochschulsport/index.php)
 * Squash
+* [Dance lessons](https://www.akk.org/tanzen/)
+* [Skateparks](https://myskatespots.com/listing/skatepark-karlsruhe/)
 
 ### Indoor
 * [Nacht der Wissenschaft](https://www.ndw-ka.de/)
